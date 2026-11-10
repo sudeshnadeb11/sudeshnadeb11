@@ -12,7 +12,7 @@ I enjoy problem-solving and being creative, and would like to solve real-world i
 
 ## ✨ Fun Facts About Me!
 
-I love reading, especially mystery books. My favorite author is Holly Jackson, and I read all of her books except for her novella. When I'm not coding, I enjoy making videos (both long and short) about hindu mythology for my YouTube channel called Creative Space! Feel free to check out my channel at this link: [Creative Space](https://www.youtube.com/@creativespace33)
+I love reading, especially mystery books. My favorite author is Holly Jackson, and I read all of her books except for her novella. When I'm not coding, I enjoy making videos (both long and short) about Hindu mythology for my YouTube channel called Creative Space! Feel free to check out my channel at this link: [Creative Space](https://www.youtube.com/@creativespace33)
 
 ## 📫 Feel Free to Connect With Me!
 
